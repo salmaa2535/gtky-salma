@@ -1,6 +1,6 @@
 My name is Salma
 
-I'm am 15 years old.
+I am 15 years old.
 
 I was born in brooklyn, New York
 
