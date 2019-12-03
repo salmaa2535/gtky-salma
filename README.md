@@ -1,12 +1,12 @@
-My name is Salma
+My name is habibah (Salma's bestfriend/cousin)
 
-I am 15 years old.
+we're both are 15 years old 
 
-I was born in brooklyn, New York
+we were both was born in brooklyn, New York
 
-My favorite color is blue
+we both like the color blue
 
-My favorite 3 artist are a boogie, roddy rich, lil tjay
+our favorite artists are a boogie, roddy rich, lil tjay
 
 On the weekends I like to go out with my friends, sleep, and munch of food
 
